@@ -28,7 +28,7 @@ Key features:
 🔍 Continuous improvement is the name of the game, and this dashboard helps us stay on top of our recruitment game. 📈💼
 
 #HRAnalytics #RecruitmentDashboard #HiringSuccess #HRMetrics #ExcelMagic
-Check it out here 📺: https://lnkd.in/gn36iiSD
+Check it out here 📺: https://youtu.be/yNqgeZP9JWU
 Looking forward to your thoughts and feedback! 🙌
 
 
